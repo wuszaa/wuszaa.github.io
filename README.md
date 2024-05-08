@@ -1,6 +1,6 @@
 # My new site on github pages
  
-## I'm not working on anything at the moment.
+## I'm a cool sigma rizzler
   
 ### Check back soon, I might. Message me on discord at @goingleboingle.
   
